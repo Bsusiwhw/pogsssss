@@ -1,1 +1,1 @@
-https://github.com/Bsusiwhw/pogsssss/settings/pages
+https://bsusiwhw.github.io/pogsssss/
